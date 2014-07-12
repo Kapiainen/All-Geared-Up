@@ -1,4 +1,4 @@
-All Geared Up
+All Geared Up by [MrJack](http://forums.bethsoft.com/user/781645-mrjack/)
 =============
 Latest version: 2.1.0
 
